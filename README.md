@@ -7,7 +7,7 @@
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithubcom%2FDyIeTimesly"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithubcom%2FDyIeTimesly&label=Letters&labelColor=%23ff8793&countColor=%23ffbed1&style=plastic" /></a>
  <p align="center"> 
   <p align="center"> 
-<img src="https://media.discordapp.net/attachments/1490288269735362712/1542889698702139482/Untitled797_20260828213244.png?ex=6a92df81&is=6a918e01&hm=c12cf736fd4b5cd156f44fb27485bab6960b3152f45e41eb9e86b1fe7c220ee5&=&format=webp&quality=lossless"/>
+<img src="https://media.discordapp.net/attachments/1490288269735362712/1543136772781899776/Untitled796_20260829135432.png?ex=6a93c59c&is=6a92741c&hm=22197fc4159102a71f455ad66754d74d049a18523837135c04b78cb6dfbaf8bf&=&format=webp&quality=lossless"/>
 <p align="center">
 
  <p align="center"> 
