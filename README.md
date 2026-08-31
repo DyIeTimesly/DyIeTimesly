@@ -16,11 +16,11 @@
 
   <p align="center"> 
   <p align="center"> 
-  ${{\color{#fc7fbe} Freely}}$ ${{\color{#fc7fbe} Interact!}}$ 
+  <img src="https://gifcity.carrd.co/assets/images/gallery142/18b4a173.gif?v=3fc8f5cd"/> ${{\color{#fc7fbe} Freely}}$ ${{\color{#fc7fbe} Interact!}}$ 
     
   <p align="center">
   <p align="center"> 
-  ${{\color{#ff8793} Dni}}$ ${{\color{#ff8793} Pro/Darkshippers}}$ 
+  <img src="https://gifcity.carrd.co/assets/images/gallery271/e9f34130.gif?v=3fc8f5cd"/> ${{\color{#ff8793} Dni}}$ ${{\color{#ff8793} Pro/Darkshippers}}$ 
     
   <p align="center">
    <p align="center"> 
