@@ -16,15 +16,19 @@
 
   <p align="center"> 
   <p align="center"> 
-  <img src="https://gifcity.carrd.co/assets/images/gallery142/18b4a173.gif?v=3fc8f5cd"/> ${{\color{#fc7fbe} Freely}}$ ${{\color{#fc7fbe} Interact!}}$ 
+  ${{\color{#fc7fbe} Freely}}$ ${{\color{#fc7fbe} Interact!}}$ 
     
   <p align="center">
   <p align="center"> 
-  <img src="https://gifcity.carrd.co/assets/images/gallery271/e9f34130.gif?v=3fc8f5cd"/> ${{\color{#ff8793} Dni}}$ ${{\color{#ff8793} Pro/Darkshippers}}$ 
+   ${{\color{#ff8793} Dni}}$ ${{\color{#ff8793} Pro/Darkshippers}}$ 
     
   <p align="center">
-   <p align="center"> 
+  
+<p align="center"> 
 <img src="https://gifcity.carrd.co/assets/images/gallery46/b72edd80.gif?v=3fc8f5cd"/>
 <p align="center">
 
+ <p align="center"> 
+<img src="https://gifcity.carrd.co/assets/images/gallery22/f550f2f6.gif?v=3fc8f5cd"/>
+<p align="center">
   
