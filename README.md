@@ -16,7 +16,7 @@
 
   <p align="center"> 
   <p align="center"> 
-  ${{\color{#fc7fbe} Freely}}$ ${{\color{#fc7fbe} Interact!}}$ 
+  ${{\color{#fc7fbe} I}}$ ${{\color{#fc7fbe} Block}}$ ${{\color{#fc7fbe} Freely}}$ 
     
   <p align="center">
   <p align="center"> 
@@ -29,6 +29,6 @@
 <p align="center">
 
  <p align="center"> 
-<img src="https://gifcity.carrd.co/assets/images/gallery22/f550f2f6.gif?v=3fc8f5cd"/>
+<img src="https://gifcity.carrd.co/assets/images/gallery22/a9d065e8.gif?v=3fc8f5cd"/> <img src="https://gifcity.carrd.co/assets/images/gallery16/bf153e92.gif?v=3fc8f5cd" /> <img src="https://gifcity.carrd.co/assets/images/gallery22/f550f2f6.gif?v=3fc8f5cd" />
 <p align="center">
   
