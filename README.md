@@ -1,5 +1,5 @@
  <p align="center"> 
-<img src="https://gifcity.carrd.co/assets/images/gallery46/b72edd80.gif?v=3fc8f5cd"/>
+<img src="https://gifcity.carrd.co/assets/images/gallery46/dca5072c.gif?v=3fc8f5cd"/>
 <p align="center">
 
  <p align="center"> 
@@ -25,7 +25,7 @@
   <p align="center">
   
 <p align="center"> 
-<img src="https://gifcity.carrd.co/assets/images/gallery46/b72edd80.gif?v=3fc8f5cd"/>
+<img src="https://gifcity.carrd.co/assets/images/gallery46/dca5072c.gif?v=3fc8f5cd"/>
 <p align="center">
 
  <p align="center"> 
