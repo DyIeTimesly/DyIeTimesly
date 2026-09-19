@@ -1,34 +1,7 @@
- <p align="center"> 
-<img src="https://gifcity.carrd.co/assets/images/gallery46/dca5072c.gif?v=3fc8f5cd"/>
-<p align="center">
-
- <p align="center"> 
- <p align="center">
-<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithubcom%2FDyIeTimesly"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithubcom%2FDyIeTimesly&label=Letters&labelColor=%23ff8793&countColor=%23ffbed1&style=plastic" /></a>
- <p align="center"> 
-  <p align="center"> 
-<img src="https://media.discordapp.net/attachments/1490288269735362712/1543136772781899776/Untitled796_20260829135432.png?ex=6a93c59c&is=6a92741c&hm=22197fc4159102a71f455ad66754d74d049a18523837135c04b78cb6dfbaf8bf&=&format=webp&quality=lossless"/>
-<p align="center">
-
- <p align="center"> 
-  
- $$ \color{#aed13f}{\Huge{\textsf{{{\color{#ff8793} Dylan}} {{\color{#fc7fbe} /}}  {{\color{#ff8793} Dyle}}  }}} $$
 
   <p align="center"> 
-  <p align="center"> 
-  ${{\color{#fc7fbe} I}}$ ${{\color{#fc7fbe} Block}}$ ${{\color{#fc7fbe} Freely}}$ 
-    
-  <p align="center">
-  <p align="center"> 
-   ${{\color{#ff8793} Dni}}$ ${{\color{#ff8793} Pro/Darkshippers}}$ 
-    
-  <p align="center">
-  
-<p align="center"> 
-<img src="https://gifcity.carrd.co/assets/images/gallery46/dca5072c.gif?v=3fc8f5cd"/>
+<img src="hhttps://upload.wikimedia.org/wikipedia/en/2/29/Wdgaster.png"/>
 <p align="center">
 
- <p align="center"> 
-<img src="https://gifcity.carrd.co/assets/images/gallery22/a9d065e8.gif?v=3fc8f5cd"/> <img src="https://gifcity.carrd.co/assets/images/gallery16/bf153e92.gif?v=3fc8f5cd" /> <img src="https://gifcity.carrd.co/assets/images/gallery22/f550f2f6.gif?v=3fc8f5cd" />
-<p align="center">
-  
+ 
+  Remaking boi
