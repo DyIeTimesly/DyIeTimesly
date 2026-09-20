@@ -7,6 +7,8 @@
 <p align="center">
 <img src="https://forestcake.carrd.co/assets/images/gallery42/6e7f4652.gif?v=f4645532 "/> ${{\color{#f7bf5a} Dylan}}$ ${{\color{#ee8d1f} / }}$ ${{\color{#f7bf5a} Dyle }}$
   <p align="center">
+    <img src="https://forestcake.carrd.co/assets/images/gallery07/1d6e1990.gif?v=f4645532 "/> ${{\color{#f7bf5a} PROSHIP}}$ ${{\color{#ee8d1f} / }}$ ${{\color{#f7bf5a} DARKSHIP }}$ ${{\color{#ee8d1f} DNI }}$
+  <p align="center">
   ☼︎☜︎💣︎✌︎😐︎✋︎☠︎☝︎ ❄︎☟︎✋︎💧︎ ☼︎☜︎✌︎👎︎💣︎☜︎
 ⬥︎♎︎ ♑︎♋︎⬧︎⧫︎♏︎❒︎ ♓︎■︎ ♎︎♏︎●︎⧫︎♋︎❒︎◆︎■︎♏︎ ♌︎◆︎♓︎●︎⧫︎ ♓︎⧫︎ ♋︎●︎●︎ ♐︎❒︎□︎❍︎ ♋︎■︎ ♏︎❍︎◻︎⧫︎⍓︎ ❒︎□︎□︎❍︎ ❍︎♓︎🙵♏︎ ⧫︎♒︎♏︎ ♍︎♋︎⧫︎✍︎ ⍓︎♏︎♋︎♒︎ ⧫︎♒︎♋︎⧫︎ ♓︎⬧︎ ☝︎✌︎💧︎❄︎☜︎☼︎✏︎ ♏︎❖︎♏︎■︎ ⧫︎♒︎♏︎ ⧫︎♓︎⧫︎♋︎■︎ ⧫︎♒︎♋︎⧫︎ ♓︎⬧︎ ☝︎✌︎💧︎❄︎☜︎☼︎✏︎✏︎✏︎✏︎
 
