@@ -4,8 +4,9 @@
   <p align="center"> 
 <img src="https://upload.wikimedia.org/wikipedia/en/2/29/Wdgaster.png"/>
 <p align="center">
-
- 
+<p align="center">
+<img src="https://forestcake.carrd.co/assets/images/gallery42/6e7f4652.gif?v=f4645532 "/> ${{\color{#f7bf5a} Dylan}}$ ${{\color{#ee8d1f} / }}$ ${{\color{#f7bf5a} Dyle }}$
+  <p align="center">
   ☼︎☜︎💣︎✌︎😐︎✋︎☠︎☝︎ ❄︎☟︎✋︎💧︎ ☼︎☜︎✌︎👎︎💣︎☜︎
 ⬥︎♎︎ ♑︎♋︎⬧︎⧫︎♏︎❒︎ ♓︎■︎ ♎︎♏︎●︎⧫︎♋︎❒︎◆︎■︎♏︎ ♌︎◆︎♓︎●︎⧫︎ ♓︎⧫︎ ♋︎●︎●︎ ♐︎❒︎□︎❍︎ ♋︎■︎ ♏︎❍︎◻︎⧫︎⍓︎ ❒︎□︎□︎❍︎ ❍︎♓︎🙵♏︎ ⧫︎♒︎♏︎ ♍︎♋︎⧫︎✍︎ ⍓︎♏︎♋︎♒︎ ⧫︎♒︎♋︎⧫︎ ♓︎⬧︎ ☝︎✌︎💧︎❄︎☜︎☼︎✏︎ ♏︎❖︎♏︎■︎ ⧫︎♒︎♏︎ ⧫︎♓︎⧫︎♋︎■︎ ⧫︎♒︎♋︎⧫︎ ♓︎⬧︎ ☝︎✌︎💧︎❄︎☜︎☼︎✏︎✏︎✏︎✏︎
 
