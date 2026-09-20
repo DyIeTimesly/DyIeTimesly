@@ -4,7 +4,7 @@
 <img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithubcom%2FDyIeTimesly&label=Trains%20Departed%20%E2%9C%A6&labelColor=%23ffebba&countColor=%23f7bf5a&style=plastic"/>
 <p align="center">
   <p align="center"> 
-<img src="https://upload.wikimedia.org/wikipedia/en/2/29/Wdgaster.png"/>
+<img src="https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/c/cf/Dyle_Icon.png/revision/latest?cb=20250920225347"/>
 <p align="center">
 <p align="center">
 <img src="https://forestcake.carrd.co/assets/images/gallery42/6e7f4652.gif?v=f4645532 "/> ${{\color{#f7bf5a} Dylan}}$ ${{\color{#ee8d1f} / }}$ ${{\color{#f7bf5a} Dyle }}$
