@@ -22,3 +22,6 @@
 <p align="center">
 
 hey um guys reminder while i do present myself as dyle i. am NOT dyle irl. i am a real person with real feelings and a life. i am not your f/o, so dont go in my dms treating me like so 
+  <p align="center"> 
+<img src="https://media.discordapp.net/attachments/1399353234572705872/1561274461087338506/IMG_9992.png?ex=6ad5c1a6&is=6ad47026&hm=02f047502902792f2a271b696b2a1ac989abb16b045ec700b9ec57cef1af3340&=&format=webp&quality=lossless"/>
+<p align="center">
