@@ -21,9 +21,6 @@
  <img src="https://64.media.tumblr.com/b3efb2af25b064eeca083f0b953598ea/02c282a3c1c8148e-0b/s250x400/8467716e0e6c4289582cce7e53a2a89557801dc5.pnj"/>
 <p align="center">
 
-hey um guys reminder while i do present myself as dyle i. am NOT dyle irl. i am a real person with real feelings and a life. i am not your f/o, so dont go in my dms treating me like so 
-  <p align="center"> 
-<img src="https://media.discordapp.net/attachments/1399353234572705872/1561274461087338506/IMG_9992.png?ex=6ad5c1a6&is=6ad47026&hm=02f047502902792f2a271b696b2a1ac989abb16b045ec700b9ec57cef1af3340&=&format=webp&quality=lossless"/>
-<p align="center">
+
 
 https://docs.google.com/document/d/1v-2Fqb5TRRM5RlfRoxUNi6VYDMjqxjnGiMUKdvWHwLw/edit?usp=sharing dyIeTimesly doc
