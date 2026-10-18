@@ -21,3 +21,4 @@
  <img src="https://64.media.tumblr.com/b3efb2af25b064eeca083f0b953598ea/02c282a3c1c8148e-0b/s250x400/8467716e0e6c4289582cce7e53a2a89557801dc5.pnj"/>
 <p align="center">
 
+hey um guys reminder while i do present myself as dyle i. am NOT dyle irl. i am a real person with real feelings and a life. i am not your f/o, so dont go in my dms treating me like so 
