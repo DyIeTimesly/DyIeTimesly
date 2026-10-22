@@ -9,6 +9,9 @@
   <p align="center"> 
 <img src="https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/c/cf/Dyle_Icon.png/revision/latest?cb=20250920225347"/>
 <p align="center">
+   <p align="center"> 
+<img src="https://autism.crd.co/assets/images/gallery06/ae8dad0e.png?v=d6547f5c"/> <img src="https://autism.crd.co/assets/images/gallery04/abf7d94e.png?v=d6547f5c"/> <img src="https://autism.crd.co/assets/images/gallery04/0de056be.jpg?v=d6547f5c"/> <img src="https://autism.crd.co/assets/images/gallery04/17fc9392.jpg?v=d6547f5c"/>
+<p align="center">
 <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery03/4882c635.gif?v=3fc8f5cd"/> ${{\color{#f7bf5a} Dylan}}$ ${{\color{#ee8d1f} / }}$ ${{\color{#f7bf5a} Dyle }}$ ${{\color{#ee8d1f} / }}$ ${{\color{#f7bf5a} Devi }}$
   <p align="center">
