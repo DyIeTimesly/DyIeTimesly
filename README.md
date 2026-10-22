@@ -10,7 +10,7 @@
 <img src="https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/c/cf/Dyle_Icon.png/revision/latest?cb=20250920225347"/>
 <p align="center">
 <p align="center">
-<img src="https://forestcake.carrd.co/assets/images/gallery42/6e7f4652.gif?v=f4645532 "/> ${{\color{#f7bf5a} Dylan}}$ ${{\color{#ee8d1f} / }}$ ${{\color{#f7bf5a} Dyle }}$ ${{\color{#ee8d1f} / }}$ ${{\color{#f7bf5a} Devi }}$
+<img src="https://gifcity.carrd.co/assets/images/gallery03/1948b387.gif?v=3fc8f5cd"/> ${{\color{#f7bf5a} Dylan}}$ ${{\color{#ee8d1f} / }}$ ${{\color{#f7bf5a} Dyle }}$ ${{\color{#ee8d1f} / }}$ ${{\color{#f7bf5a} Devi }}$
   <p align="center">
     <img src="https://forestcake.carrd.co/assets/images/gallery07/1d6e1990.gif?v=f4645532 "/> ${{\color{#f7bf5a} PROSHIP}}$ ${{\color{#ee8d1f} / }}$ ${{\color{#f7bf5a} DARKSHIP }}$ ${{\color{#ee8d1f} DNI }}$
   <p align="center">
