@@ -28,7 +28,7 @@
 <p align="center">
 
 <p align="center">
-click on this link to see my cute oc aww https://samtimesly.straw.page/
+<img src="https://media.discordapp.net/attachments/1421785609097445497/1566952679492816916/IMG_0272.gif?ex=6aea69e7&is=6ae91867&hm=6264e82c3a4e96ddf9c05f2d21fe00195c4aa1b9220cb017c277e6aceceaf4b8&="/>
 
 <p align="center">
 
