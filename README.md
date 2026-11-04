@@ -29,7 +29,7 @@
 
 <p align="center">
 
-<img src="http://atabook.org/"/>
+<img src="https://github.com/DyIeTimesly/DyIeTimesly/blob/main/holy%20gazingas.gif"/>
 
 <p align="center">
 
